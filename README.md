@@ -1,4 +1,4 @@
-Welcome to my GitHub profile! I'm *RAJA KUMAR, a BTech student specializing in **Computer Science and Engineering* at *KIIT*. I thrive on creativity and innovation in the tech universe, where boundaries blur, and possibilities are endless.  
+Welcome to my GitHub profile! I'm *Aadarsh Thakur, a BTech student specializing in **Computer Science and Engineering* at *KIIT*. I thrive on creativity and innovation in the tech universe, where boundaries blur, and possibilities are endless.  
 
 ---
 
